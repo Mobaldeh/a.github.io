@@ -1,2 +1,1 @@
-# chernoamadoutailorsgambia.github.io
-business
+
